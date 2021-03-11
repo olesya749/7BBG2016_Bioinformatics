@@ -1,1 +1,1 @@
-![a_new_pic](https://www.google.com/url?sa=i&url=https%3A%2F%2Fstock.adobe.com%2Fgr_en%2Fsearch%3Fk%3Dshocked%2Bcat&psig=AOvVaw2BLZVY6EQEd6pvGvYV6YQs&ust=1615569470054000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPDPq7XfqO8CFQAAAAAdAAAAABAI)
+![a_new_pic](https://www.readersdigest.ca/wp-content/uploads/2013/03/6-facts-to-know-before-owning-a-puppy.jpg)
