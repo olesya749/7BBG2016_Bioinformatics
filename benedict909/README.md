@@ -1,3 +1,1 @@
-![a_new_pic](https://us.vcdn.
-net/5019796/uploads/FileUpload/eb/44f317f8850ba74b64ba47b02d1bae
-.png)
+![a_new_pic](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fsocialnewsdaily.com%2Fwp-content%2Fuploads%2F2014%2F05%2Frick-astley-rickrolling.jpg&f=1&nofb=1)
