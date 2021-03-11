@@ -1,1 +1,1 @@
-![a_new_pic](https://us.vcdn.net/5019796/uploads/https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fvignette1.wikia.nocookie.net%2Fcreation%2Fimages%2Ff%2Ffa%2FBest-rick-roll-gif-577.gif%2Frevision%2Flatest%3Fcb%3D20160515183412&f=1&nofb=1)
+![a_new_pic](https://i.pinimg.com/originals/88/82/bc/8882bcf327896ab79fb97e85ae63a002.gif)
